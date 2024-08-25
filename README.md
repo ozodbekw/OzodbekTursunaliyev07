@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OzodbekTursunaliyev07
-- 👀 I’m interested in football
-- 🌱 I’m currently learning Coding skills and personal improve
+- 👀 I’m interested in reading books
+- 🌱 I’m currently learning Coding skills and Languages
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me "doing doing and else doing"
 - 😄 Pronouns: ...
