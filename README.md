@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @OzodbekTursunaliyev07
-- 👀 I’m interested in reading books
+- 👋 Hi, I’m Ozodbek Tursunaliyev
+- 👀 I’m interested in reading books and Coding
 - 🌱 I’m currently learning Coding skills and Languages
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me "doing doing and else doing"
